@@ -46,7 +46,8 @@ Email: kmc.ferdinant@gmail.com, kineticmechanical@gmail.com
 ![Untitled Project (5)](https://github.com/user-attachments/assets/7bc700b1-995b-486e-accd-b6bcb81abf19)
 
 
-![Untitled Project (2)](https://github.com/user-attachments/assets/1f2fce33-0ca0-49aa-8377-2bed6bf17121)
+
+![Untitled Project (6)](https://github.com/user-attachments/assets/97aa2edd-39a8-43dc-80cb-8ea5f3b6ec34)
 
 
 ![Untitled Project (3)](https://github.com/user-attachments/assets/2d86e5af-a84f-422e-a5ba-a876db2c6267)
