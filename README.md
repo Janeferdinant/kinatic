@@ -1,4 +1,5 @@
 ![12](https://github.com/user-attachments/assets/a79172cb-8a39-445d-8d22-dff194bd5d28)
+
 Kinetic Engineering: Your Trusted Partner for Precision Engineering
 Precision, Quality, and Innovation
 
@@ -42,8 +43,8 @@ Email: kmc.ferdinant@gmail.com, kineticmechanical@gmail.com
 
 ![10](https://github.com/user-attachments/assets/3dbcd917-a47c-4308-a5af-4b53a7e9498f)
 ![9](https://github.com/user-attachments/assets/abbfb5d1-3a84-45ff-9b32-a75815e17ed8)
-![7](https://github.com/user-attachments/assets/7108fb39-3ae8-425c-85d3-624ccab916d2)
-![Brochure - Inner Page (3)_1731221010766](https://github.com/user-attachments/assets/c6acbbcd-89f2-49c0-9b79-21edbf8faf2a)
+![Untitled Project (5)](https://github.com/user-attachments/assets/7bc700b1-995b-486e-accd-b6bcb81abf19)
+
 
 ![Untitled Project (2)](https://github.com/user-attachments/assets/1f2fce33-0ca0-49aa-8377-2bed6bf17121)
 
