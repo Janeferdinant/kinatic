@@ -38,6 +38,8 @@ Address: M-33, Al Kawakib 3 St., Musaffah, Abu Dhabi, UAE
 Phone: +971 2 6424266
 Fax: +971 2 6424266
 Email: kmc.ferdinant@gmail.com, kineticmechanical@gmail.com
+
+
 ![10](https://github.com/user-attachments/assets/3dbcd917-a47c-4308-a5af-4b53a7e9498f)
 ![9](https://github.com/user-attachments/assets/abbfb5d1-3a84-45ff-9b32-a75815e17ed8)
 ![Untitled Project (2)](https://github.com/user-attachments/assets/1f2fce33-0ca0-49aa-8377-2bed6bf17121)
