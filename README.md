@@ -42,7 +42,6 @@ Email: kmc.ferdinant@gmail.com, kineticmechanical@gmail.com
 
 ![10](https://github.com/user-attachments/assets/3dbcd917-a47c-4308-a5af-4b53a7e9498f)
 
-
 ![7](https://github.com/user-attachments/assets/0cc0b0b5-fdd2-4acb-ab18-956e0f59eff5)
 
 ![Untitled Project (7)](https://github.com/user-attachments/assets/d2a06fb3-7ae7-48c4-89bb-82ec9ee0ca68)
@@ -51,6 +50,5 @@ Email: kmc.ferdinant@gmail.com, kineticmechanical@gmail.com
 
 
 
-![Untitled Project (1)](https://github.com/user-attachments/assets/ad6a2adf-97d5-478d-a70c-ec0e80fef754)
 
 Keywords: steel fabrication, machining, precision engineering, Abu Dhabi, UAE, metalworking, industrial solutions
